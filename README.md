@@ -1,0 +1,1 @@
+Some antiviruses might detect this cracked version some might not. This is a CRACKED PAID PROGRAM due to it being a CRACKED program it will give Antiviruses false feedback, Enjoy before it gets patched soon im sure.
